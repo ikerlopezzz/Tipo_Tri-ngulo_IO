@@ -1,0 +1,1 @@
+# Tipo_Tri-ngulo_IO
